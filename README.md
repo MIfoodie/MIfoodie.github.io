@@ -1,1 +1,1 @@
-# mifoodie.github.com
+# mifoodie.github.io
